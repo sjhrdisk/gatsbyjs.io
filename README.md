@@ -1,1 +1,1 @@
-# netlify-landing-repository
+# gatsbyjs.io
