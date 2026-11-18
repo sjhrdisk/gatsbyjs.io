@@ -6,9 +6,10 @@
 
 ### 🌐 공식 서비스 안내
 
-* [다낭유흥 놀거리 가이드](https://danang0night.dothome.co.kr/) - 현지 유흥 코스, 정찰제 가격 및 실전 이용 팁
-* [다낭밤문화 여행 포털](https://travel-culture.vn/) - 다낭 밤문화 종합 가이드, 추천 매장 및 예약 문의
-* [다낭밤문화 공식 페이스북](https://www.facebook.com/danang.night/) - 실시간 현지 소식 및 커뮤니티
+* [다낭유흥 다낭밤문화](https://danang0night.dothome.co.kr/) - 다낭유흥 다낭밤문화 5가지 핵심 가이드
+* [다낭밤문화 로컬현장](https://travel-culture.vn/) - 다낭 로컬 현장 가이드, 추천 매장 및 예약 문의
+* [다낭유흥 다낭밤문화](https://www.facebook.com/danang.night/) - 다낭 가라오케 코스, 정찰제 가격
+* [다낭밤문화 페이스북](https://www.facebook.com/danang.night/) - 실시간 소식 및 커뮤니티
 
 ---
 
