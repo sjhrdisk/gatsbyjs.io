@@ -8,8 +8,8 @@
 
 * [다낭유흥 다낭밤문화](https://danang0night.dothome.co.kr/) - 다낭유흥 다낭밤문화 5가지 핵심 가이드
 * [다낭밤문화 로컬현장](https://travel-culture.vn/) - 다낭 로컬 현장 가이드, 추천 매장 및 예약 문의
-* [다낭유흥 다낭밤문화](https://www.facebook.com/danang.night/) - 다낭 가라오케 코스, 정찰제 가격
-* [다낭밤문화 페이스북](https://www.facebook.com/danang.night/) - 실시간 소식 및 커뮤니티
+* [다낭유흥 다낭밤문화](https://danang-nightlife.isweb.co.kr/) - 다낭 가라오케 코스, 정찰제 가격
+* [다낭밤문화 페이스북](https://www.facebook.com/danang.night) - 실시간 소식 및 커뮤니티
 
 ---
 
